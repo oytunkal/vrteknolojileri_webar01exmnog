@@ -1,1 +1,0 @@
-# vrteknolojileri_webar01exmnog
